@@ -1,0 +1,4 @@
+# typegame
+
+changyaping 
+hahaahaha
